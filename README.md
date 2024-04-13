@@ -1,1 +1,1 @@
-# 10_haftai-i_udemig_akademi
+# 10_hafta_ici_udemig_akademi
